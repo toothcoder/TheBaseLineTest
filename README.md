@@ -1,1 +1,2 @@
 The Baseline Test is an examination designed to measure any emotional deviance experienced by Nexus-9 replicants from the fictional film series 'Blade Runner'. To be "off baseline" would be considered a failure of such test. A subject's first failure would result in a verbal warning, the second would result in recalibration, and the third would permit immediate retirement 
+![thumb_AC3E8332-BDAE-4BCC-88E6-7885FF452732](https://github.com/user-attachments/assets/36d4de83-3466-4747-81a7-3d560afe2486)
