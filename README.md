@@ -1,0 +1,1 @@
+The Baseline Test is an examination designed to measure any emotional deviance experienced by Nexus-9 replicants. To be "off baseline" would be considered a failure of such test. A subject's first failure would result in a verbal warning, the second would result in recalibration, and the third would permit immediate retirement 
